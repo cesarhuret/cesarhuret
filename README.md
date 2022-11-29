@@ -1,4 +1,4 @@
-![alt text](https://i.imgur.com/nQsAou2.png)
+![alt text](https://i.imgur.com/00Y6rC9.png)
 
 ### 🧙🏼‍♂️ Yo! I'm Cesar, a 17 y/o builder :)
 
